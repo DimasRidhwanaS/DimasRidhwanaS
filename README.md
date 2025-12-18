@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Robotics and IOT Enthusiast
 - 📫 How to reach me 
    - Line       : dimas_ridhwana
-   - Email      : 13221076@std.stei.itb.ac.id
+   - Email      : dimsridhwana@gmail.com
    - Instagram  : dimas_ridhwana
 
 <!---
